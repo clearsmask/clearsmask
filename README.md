@@ -21,4 +21,4 @@ My bestfriend ever is <a href="https://github.com/sagesneezes">Sagesneezes</a> s
 
 I really like Persona, Sherlock, Dmmd, Good Omens, House MD , Dead Poets Society, and Deathnote....
 
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/ynqRgDr7/0d82bf16b594d607c7c5bef71aa7ea7f.jpg" alt="0d82bf16b594d607c7c5bef71aa7ea7f" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/ynqRgDr7/0d82bf16b594d607c7c5bef71aa7ea7f.jpg" width="300" alt="0d82bf16b594d607c7c5bef71aa7ea7f" border="0"></a>
