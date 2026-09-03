@@ -5,7 +5,7 @@
 
 I am really social and I love making new friends, IF I THINK YOU ARE COOL I WILL INITIATE A CONVERSATION OK.
 
-<a href="https://github.com/sagesneezes"> carrd </a> is the noctis to my prompto #kind #joy
+<a href="https://github.com/sagesneezes"> sage </a> is the noctis to my prompto #kind #joy
 
 You can find more information about me on my <a href="https://pargentum.carrd.co/"> carrd </a> and my <a href="https://guns.lol/stopsignhandler"> guns.lol </a> !!
 
