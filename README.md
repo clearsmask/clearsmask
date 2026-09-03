@@ -6,7 +6,7 @@ I am really social and I love making new friends
 
 You can find more information about me on my <a href="https://pargentum.carrd.co/"> carrd </a> and my <a href="https://guns.lol/stopsignhandler"> guns.lol </a> !!
 
-<a href="https://ibb.co/JjXkVktp"><img src="https://i.ibb.co/PGBCKCjW/8942875a63d399295fac6216b3f46380.jpg" alt="8942875a63d399295fac6216b3f46380" border="0"></a>
+<a href="https://ibb.co/HLRKY82Q"><img src="https://i.ibb.co/NgfFpB3z/edd6ca14b2d8488dcec912670aca2a7d.jpg" alt="edd6ca14b2d8488dcec912670aca2a7d" border="0"></a>
 
 I play alot of video games
 
