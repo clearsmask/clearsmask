@@ -2,7 +2,7 @@ Hi I love pony town and playing final fantasy 15 ok
 
 I am really social and I love making new friends
 
-sage is the noctis to my prompto #kind #joy
+<a href="https://github.com/sagesneezes"> carrd </a> is the noctis to my prompto #kind #joy
 
 You can find more information about me on my <a href="https://pargentum.carrd.co/"> carrd </a> and my <a href="https://guns.lol/stopsignhandler"> guns.lol </a> !!
 
