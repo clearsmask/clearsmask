@@ -13,5 +13,6 @@ You can find more information about me on my <a href="https://pargentum.carrd.co
 
 __IF YOU LIKE FFXV PLEASE BE MY FRIEND!!! I LOVE FFXV SO MUCH IT IS MY FAVORITE THING EVER.__
 
-<a href="https://clearsmask.atabook.org/?page=1"> leave me a message! </a> </div>
+<a href="https://clearsmask.atabook.org/?page=1"> leave me a message! </a> 
 
+<a href="https://www.last.fm/user/Rydenlover11"><img src="https://lastfm-recently-played.vercel.app/api?user=Rydenlover11" height="auto" width="350px"/></a> </div>
