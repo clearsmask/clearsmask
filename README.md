@@ -1,4 +1,4 @@
-Hi I love pony town and playing final fantasy 15 ok 
+<div align="center"> Hi I love pony town and playing final fantasy 15 ok 
 
 I am really social and I love making new friends
 
@@ -10,4 +10,4 @@ You can find more information about me on my <a href="https://pargentum.carrd.co
 
 I play alot of video games
 
-<a href="https://clearsmask.atabook.org/?page=1"> leave me a message! </a>
+<a href="https://clearsmask.atabook.org/?page=1"> leave me a message! </a> </div>
